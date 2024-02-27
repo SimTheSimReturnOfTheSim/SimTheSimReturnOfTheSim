@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sim
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning .school stuff
+- 🌱 I’m currently learning school stuff
 - 💞️ I’m looking to collaborate on EVERYTHING
 - 📫 How to reach me: scream very loud
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: at least 5' tall, but shorter than 7'.
+- ⚡ Fun fact: at least 5' tall, but shorter than 7'
